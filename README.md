@@ -4,11 +4,11 @@
 ------
 :globe_with_meridians: :point_right: 【发布页地址】 ：https://www.dongsedi.me
 ------
-:fire: :point_right: 【线路一】 ：https://dsd365.cc/
+:fire: :point_right: 【线路一】 ：https://dsd666.cc/
 ------
-:fire: :point_right: 【线路二】 ：https://dsd366.cc/
+:fire: :point_right: 【线路二】 ：https://dsd999.cc/
 ------
-:white_check_mark: 【邮箱联系方式】 ：dongsedi365@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
+:white_check_mark: 【邮箱联系方式】 ：dongsedi999@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
 
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
