@@ -2,11 +2,13 @@
 ==
 :fire: :point_right: 【永久地址】 ：https://www.dongsedi.net/
 ------
-:globe_with_meridians: :point_right: 【发布页地址】 ：https://www.dongsedi.me
+:globe_with_meridians: :point_right: 【发布页地址1】 ：https://www.dongsedi.me
 ------
-:fire: :point_right: 【线路一】 ：https://dsd666.cc/
+:globe_with_meridians: :point_right: 【发布页地址2】 ：https://www.dongsedi.icu
 ------
-:fire: :point_right: 【线路二】 ：https://dsd999.cc/
+:fire: :point_right: 【线路一】 ：https://dsd818.vip/
+------
+:fire: :point_right: 【线路二】 ：https://dsd819.vip/
 ------
 :white_check_mark: 【邮箱联系方式】 ：dongsedi999@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
 ------
